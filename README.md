@@ -1,0 +1,1 @@
+# An-lisis-de-la-Relaci-n-entre-ndice-de-Gini-y-Tasa-de-Pobreza-en-distintas-epocas
